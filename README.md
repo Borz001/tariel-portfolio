@@ -40,7 +40,7 @@ ProseKG (NextJs)
 
 ## 🏆 Achievement 
 •Champion at MINDSKILLS-OPEN 2019! 🏆 This international mental arithmetic marathon
-•Participation in the World championship mental arithmetic skills 
+•Participation in the World championship mental arithmetic skills from Memoriad 
 •1st place on the International Mental Arithmetic Olympiad WISF ISSYK-KUl 2021
 •3rd place on the International Mental Calculation Championshipwist 2019
 •Participation in the International skills development session
